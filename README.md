@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @just2fight12
 - 👀 I’m interested in the hacking
-- 🌱 I’m currently learning je suis au collège
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on brute farce
 - 📫 How to reach me at hacking an e-mail
 
